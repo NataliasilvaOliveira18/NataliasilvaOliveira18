@@ -1,0 +1,5 @@
+- 👋 Olá, sou @NataliasilvaOliveira18
+- 🌱 Atualmente estou cursando Sistemas de Informação 
+- 💞️ Procuro colaborar com novas ideias
+- 📫 Como entrar em contato comigo: nataliasoliveira2020@gmail.com 
+- ⚡ Curiosidade: Adoro música e toco alguns instrumentos musicais
